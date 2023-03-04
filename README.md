@@ -33,9 +33,6 @@ Affordable Wind turbines Vawt can be retrofit to any utility pole, unused utilit
 Availability is critical to our business model. Once in production we will have the capability to manufacture several thousand turbines a month from one manufacturing operation. Future goals include expanding manufacturing of the Affordable Wind turbines Vawt worldwide, especially in areas of critical need of economic development and energy.
 
 The Affordable Wind turbines Vawt, Features:
-![youtube-new-logo-](https://user-images.githubusercontent.com/126938453/2228![patreon-banner-519x200](https://user-images.githubusercontent.com/126938453/222878047-4cd78bbc-da6f-4f5d-a95d-d5b054932d00.png)
-78045-cf0f9047-048b-4802-b160-ec4959fa991e.png)
-
 Captures a higher amount of potential wind energy per diameter of swept area
 Operates at slower RPM with higher load-to-torque conversion for harnessing a broader range of wind velocities.
 Made of durable, ultra-light materials which have established outdoor lifespans in excess of 25 years.
