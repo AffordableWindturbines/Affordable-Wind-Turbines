@@ -49,10 +49,13 @@ Home Wind turbine
 
 Affordable Wind turbines has developed the high-performance VAWT Home Wind turbine to deliver you serious power at a substantial savings. You get online system monitoring, best-in-class safety, and the flexibility to expand your clean energy system in the future. Affordable Wind turbines is dedicated to designing clean energy technology that makes financial sense for any household, school, business, or farm with a good wind resource.
 
+![1 kw portable vertical axis wind turbine water filled base large 2](https://user-images.githubusercontent.com/126938453/222878234-edc2b048-4358-43c2-b882-262c337af95a.png)
+
+
+
 Owner Benefits
 
 There’s just something satisfying about making your own electricity from a fresh breeze. Cut your electric bill, reduce your carbon footprint, and make a bold statement about energy independence with Affordable Wind Turbines’s VAWT wind turbine. Affordable Wind turbines makes the decision to invest in leading clean energy technology easy. The VAWT delivers many benefits:
-
 Lower cost, faster payback. Affordable Wind turbines gives you more kilowatt-hours for your buck.
 Affordable Wind Turbines’s exclusive safety system. Like an airbag for your wind turbine, Affordable Wind Turbines’s safety system gives your family an added sense of security when severe weather strikes.
 Easily monitor performance. Watch your system perform from anywhere in the world through your personal monitoring dashboard.
