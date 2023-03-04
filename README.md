@@ -287,5 +287,5 @@ http://affordablewindturbines1.weebly.com/blog/wind-turbines-kits-for-sale-ebay-
 http://affordablewindturbines1.weebly.com/blog/how-do-wind-turbines-work-department-of-energy-how-do-wind-turbines-worka-wind-turbine-turns-wind-energy-into-electricity-using-the-aerodynamic-force-from-the-rotor-blades-which-work-like-an-airplane-wing-or-helicopter-rotor-blade
 https://affordablewindturbineshome.weebly.com/
 https://affordablewindturbines1.weebly.com/1/feed
-# Affordable-Wind-Turbines
+# Affordable-Wind-Turbines    google-site-verification: google1b55a302b7d36a10.html
 affordable home wind turbines
