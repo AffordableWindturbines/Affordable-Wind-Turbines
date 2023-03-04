@@ -261,7 +261,7 @@ https://www.prlog.org/12597662-introducing-the-1-kilowatt-portable-wind-turbine-
 affordablewindturbines wix.com
 https://affordablewindturbines1.weebly.com/
 rss My Site - Blog
-https://affordablewindturbines1.weebly.com/blogBlogMon, 27 Feb 2023 19:09:22 -0800Weebly
+https://affordablewindturbines1.weebly.com/blog BlogMon, 27 Feb 2023 19:09:22 -0800Weebly
 http://affordablewindturbines1.weebly.com/blog/affordable-residential-wind-generators
 https://affordablewindturbines1.weebly.com/blog/affordable-home-wind-turbines-below-600
 http://affordablewindturbines1.weebly.com/blog/small-wind-electric-systems-department-of-energy-from-the-doe-website-a-good-article
