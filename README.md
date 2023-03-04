@@ -1,4 +1,5 @@
 Our goal at Affordable Wind Turbines is to provide effective solutions designed to meet your needs, be it small or a large home or  organization.
+![1 kw roof mount turbine 2](https://user-images.githubusercontent.com/126938453/222877954-a19ea84e-52d9-4237-b986-47f3d85dac0e.jpg)
 
 ​
 
