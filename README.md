@@ -21,6 +21,7 @@ About the Affordable Wind Turbines Vawt
 Capturing Clean, Affordable Wind Energy with Power …
 
 Affordable Wind Turbines Vawt™ was developed for both residential use and utility scale projects including entire communities, neighborhoods or agricultural groups coming together on a project basis to generate power. The rooftop or pole mounted Affordable Wind Turbines Vawt™ is an affordable, quiet and powerful, bird safe, scalable wind turbine system.
+
 ![1 kw unit on house3](https://user-images.githubusercontent.com/126938453/222878034-958f726c-4403-4536-9ec7-5aac922e3082.png)
 
 Scalability: You can start with one Affordable Wind turbines Vawt turbine and add more turbines per pole, and more poles as your power needs grow- without the cost, time or materials waste of major construction. We call multiple Affordable Wind turbines Vawt configurations Wind Orchards. Locally, the benefits would be the capability to easily generate power and have off-grid emergency power for any neighborhood.
