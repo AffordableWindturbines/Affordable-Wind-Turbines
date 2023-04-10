@@ -230,7 +230,6 @@ s0.parentNode.insertBefore(s1,s0);
 })();
 </script>
 <!--End of Tawk.to Script-->
-
 https://twitter.com/affordablewind
 https://www.linkedin.com/in/johnnyheath?original_referer=https%3A%2F%2Fwww.google.com%2F
 https://www.instagram.com/affordablewindturbines/
@@ -738,7 +737,6 @@ https://sites.google.com/view/can-you-use-car-batteries-for/home
 https://www.goodfirms.co/company/affordable-wind-turbines
 https://youtu.be/IBMCRbKqoro
 https://youtu.be/iEmmlBHgI6Y
-
 
 # Affordable-Wind-Turbines    
 <meta name="google-site-verification" content="gWbCPej5bmeD_nYRA5Pbx5nkb2_5mrzrNczc0v1x1hk" />
